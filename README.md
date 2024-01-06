@@ -21,4 +21,4 @@
 
 Tips:笑死我了，封就封呗，和我有啥关系对吧doge
 # 打开等于小开，小开等于没开，没开就是没开!!!
-[中国前14亿PVP玩家FireHY]([https://cloud.githubusercontent.com/assets/13227314/21706500/76fdb962-d37c-11e6-9284-093ad065aeca.PNG](https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)
+[中国前14亿PVP玩家FireHY](https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)
