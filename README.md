@@ -1,6 +1,6 @@
 ## <p align="center">VapeV4/Lite破解版Cracked无后门</p>
 
-[![Build status](https://www.vape.gg/)
+![Build status](https://www.vape.gg/)
 
 # VapeClient
 - Minecraft-ClassicGhostClient：Lite
