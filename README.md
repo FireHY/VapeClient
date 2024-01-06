@@ -1,12 +1,9 @@
 ## <p align="center">VapeV4/Lite破解版Cracked无后门</p>
-![Build status]([https://www.vape.gg/](https://space.bilibili.com/3493112309614889))
-关注我的B站账号!!
-![Build status](https://www.vape.gg/)
+[我的B站账号](https://space.bilibili.com/3493112309614889)
 # VapeClient
 - Minecraft-ClassicGhostClient：Lite
 - Minecraft-GhostClient：V4
-
-
+[VAPE官网](https://[www.vape.gg)
 # Getting Hacking in Minecraft
 1. 解压到一个文件夹
 2. 右键管理员运行fix.bat
@@ -24,4 +21,4 @@
 
 Tips:笑死我了，封就封呗，和我有啥关系对吧doge
 # 打开等于小开，小开等于没开，没开就是没开!!!
-![linux options]([https://cloud.githubusercontent.com/assets/13227314/21706500/76fdb962-d37c-11e6-9284-093ad065aeca.PNG](https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)
+![Build status]([https://cloud.githubusercontent.com/assets/13227314/21706500/76fdb962-d37c-11e6-9284-093ad065aeca.PNG](https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)https://www.bilibili.com/video/BV1kx4y1d7pS/?spm_id_from=333.337.search-card.all.click)
