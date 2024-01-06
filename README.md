@@ -24,3 +24,4 @@
 
 Tips:笑死我了，封就封呗，和我有啥关系对吧doge
 # 打开等于小开，小开等于没开，没开就是没开!!!
+![linux options](https://cloud.githubusercontent.com/assets/13227314/21706500/76fdb962-d37c-11e6-9284-093ad065aeca.PNG)
